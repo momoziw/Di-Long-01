@@ -210,7 +210,7 @@ he向连载！
 79.【论坛体】如果龙王是某网站知名写手 [http://36167.lofter.com/post/1d2330d0_1c653b209](http://36167.lofter.com/post/1d2330d0_1c653b209)
 
 80.[【天帝龙王】谁还记（上）](http://libby417aaa.lofter.com/post/20509469_1c6501c1a) [（下）](http://libby417aaa.lofter.com/post/20509469_1c64ec3f6) ；[【天帝龙王】不曾忘（上）](http://libby417aaa.lofter.com/post/20509469_1c6501c1a) [（下）](http://libby417aaa.lofter.com/post/20509469_1c6511cc2)
-是上面推过的那篇w
+是下面be向也推了的一篇w
 
 81.[地笼||藕饼]私藏皇储，该当何罪[http://lenglingxue521.lofter.com/post/1fedd89d_1c6672ba1](http://lenglingxue521.lofter.com/post/1fedd89d_1c6672ba1)
 是熊孩子助攻老爹的故事
