@@ -239,6 +239,11 @@ ooc沙雕预警
 89.【地笼 藕饼】春去冬来2 R [http://wochaoaizhuyilong.lofter.com/post/1deff58d_1c657ab0d](http://wochaoaizhuyilong.lofter.com/post/1deff58d_1c657ab0d)
 本文包含天帝火葬场 地笼的哔—— 和 藕饼婴儿车
 
+90.[【地笼十世联文】蛊 ](http://cavallone-d.lofter.com/post/1e411b1f_1c66b3f84)
+作者：[暮绻](http://cavallone-d.lofter.com/)
+发现一篇遗漏ww， 背景是山海经游戏，一发完。配图也超美
+
+
 ## 二、be向 ~~（热爱欣赏渣男被虐的可以尽情点下方链接）~~：
 
 1.[地笼 断魂 ](http://suroude.lofter.com/post/1f5eb4bc_1c64d4644) 作者：[酥肉的](http://suroude.lofter.com/)
